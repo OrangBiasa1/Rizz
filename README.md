@@ -1,0 +1,2 @@
+# Rizz
+Jangan lupa Bismillah
